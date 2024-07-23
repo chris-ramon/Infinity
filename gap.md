@@ -9,7 +9,7 @@ Eg, Universe:
 - Why everything is connected ?
 - How many are there ?
 
-###### Strategies
+###### Solutions
 Closing the GAP between what I don't know and what I know,
 takes time but worth's it, there is something in-between that
 awakes in the brain and is wonderful.
