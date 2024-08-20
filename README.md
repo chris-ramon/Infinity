@@ -92,6 +92,7 @@ Impacts end goal life but not as it should unless we allow it.
 
 30- [Parodia] Solving O(log ∞) Pairing Issue, 1-X and ∞-Y:
 Topling Y, and Keeping X.
+Y pulled against the X single male infinitely, y grows but so slowly that is almost constant.
 
 31- [Parodia] Trippleting O(log ∞) Pairing Issue, 1-X and ∞-Y:
 X black-tripplet-particle scaling up-to ∞-Y.
