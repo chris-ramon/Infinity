@@ -81,3 +81,8 @@ https://docs.google.com/document/d/1rSRpoqemotYuBdTKRJOI3D93d_DD5oSl7NuUK_HLFP8/
 25- Triggering life-form traps that create negative delta.
 
 26- Time all-directions, disorientation delta trade-off.
+
+27- Addictions: eg. drugs, alcohol, watching novels, porn,
+log(n), pulled against to certain particle, not able to detach.
+
+28- Computing with ∞-me vs ∞-me+1
