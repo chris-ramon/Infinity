@@ -86,3 +86,12 @@ https://docs.google.com/document/d/1rSRpoqemotYuBdTKRJOI3D93d_DD5oSl7NuUK_HLFP8/
 log(n), pulled against to certain particle, not able to detach.
 
 28- Computing with ∞-me vs ∞-me+1
+
+29- ∞-me flowing through ∞ and causing ∞ impact:
+Impacts end goal life but not as it should unless we allow it.
+
+30- [Parodia] Solving O(log ∞) Pairing Issue, 1-X and ∞-Y:
+Topling Y, and Keeping X.
+
+31- [Parodia] Trippleting O(log ∞) Pairing Issue, 1-X and ∞-Y:
+X black-tripplet-particle scaling up-to ∞-Y.
