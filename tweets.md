@@ -92,3 +92,17 @@ Aclarando dudas a los techies
 ( ∞ ) Kriz Tech Advisor ⚫️: As a entitle ∞-life-form from ∞-civilizations, with ∞-partial-tech-resources they are will to play God and interfere with ∞-nature, 
 
 ( ∞ ) Kriz Tech Advisor ⚫️: As a entitle ∞-life-form from ∞-civilizations, with ∞-partial-tech-resources they are will to play God and interfere with ∞-nature, 
+
+---
+As ∞-subset-nature balancer. 
+---
+
+( ∞ ) Pt1 Kriz ∞-subset-nature Balancer ⚫️(UnNat-Enterprise-X): At ∞-subset-nature a primitive civilization went through and an UnNat-Enterprise-X appeared X is a criminal and about to be hunted by Kriz's black-shadow.
+
+( ∞ ) Pt2 Kriz ∞-subset-nature Balancer ⚫️(UnNat-Enterprise-X): UnNat-Enterprise-X is prosecuted for Harassment at very large enterprise tech company, he dopped and tried to do un-natural sex to a Y.
+
+( ∞ ) Pt3 Kriz ∞-subset-nature Balancer ⚫️(UnNat-Enterprise-X): Kriz prevented it by stopping UnNat-Enterprise-X time and created a illusion in X mind and sent him back waste-home with the delta/illusion that X raped Y, them X was re-tagged at ∞-particle-level because X was already ∞-monitored.
+
+( ∞ ) Pt4 Kriz ∞-subset-nature Balancer ⚫️(UnNat-Enterprise-X): Since UnNat-Enterprise-X genes-particles gave clear idea what X intentions were and are. So ∞-subset-nature made him compensate all Y suffering slowly as fair as possible so UnNat-Enterprise-X could re-build from scratch at some point in time.
+
+( ∞ ) Pt5 Kriz ∞-subset-nature Balancer ⚫️(UnNat-Enterprise-X): UnNat-Enterprise-X is limited at ∞-scale and if their itentions would re-appear X would slowly decay or even explode at ∞-particle-level.
