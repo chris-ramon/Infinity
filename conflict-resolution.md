@@ -99,3 +99,19 @@ No prison.
 
 How he affects him:
 0 cares given, didn't do it again and will not do it again.
+
+##### Watching Porn and Seeing UnAuthorized Photos
+Chris case:
+Chris watched multiple time several porn videos from known adult sites and also unauthorized semi-naked photos.
+
+Traces:
+Particles left at the time between: 2012 and 2024, space: Lima.
+
+Resolution:
+Life nature compensates +deltas on-demand based on the affected life-forms.
+
+Jail:
+No prison.
+
+How he affects him:
+0 cares given, didn't do it again and will not do it again.
