@@ -99,7 +99,7 @@ As ∞-subset-nature balancer.
 
 ( ∞ ) Pt1 Kriz ∞-subset-nature Balancer ⚫️(UnNat-Enterprise-X): At ∞-subset-nature a primitive civilization went through and an UnNat-Enterprise-X appeared X is a criminal and about to be hunted by Kriz's black-shadow.
 
-( ∞ ) Pt2 Kriz ∞-subset-nature Balancer ⚫️(UnNat-Enterprise-X): UnNat-Enterprise-X is prosecuted for Harassment at very large enterprise tech company, he dopped and tried to do un-natural sex to a Y.
+( ∞ ) Pt2 Kriz ∞-subset-nature Balancer ⚫️(UnNat-Enterprise-X): UnNat-Enterprise-X is prosecuted for harassment and rape at very large enterprise tech company, he dopped and tried to do un-natural sex to a Y.
 
 ( ∞ ) Pt3 Kriz ∞-subset-nature Balancer ⚫️(UnNat-Enterprise-X): Kriz prevented it by stopping UnNat-Enterprise-X time and created a illusion in X mind and sent him back waste-home with the delta/illusion that X raped Y, them X was re-tagged at ∞-particle-level because X was already ∞-monitored.
 
