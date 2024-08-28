@@ -1,37 +1,41 @@
 Stand-up / Black / Life / Today
 
+**First Note Of The Day / Most Important Thing:**
 
-First Note Of The Day / Most Important Thing
+**What’s More Valuable In Life(Life Nature) As a Life-Form Aligned: Time, Black, Green.**
 
-- Always on top-confidence & handling the combo of the day.
-- Facing nature to handle their syncronization by challenging them and telling them: "Keep Coming".
-- Creating Deltas: Documenting for future nature and also considering the universe contains ∞-life-forms therefore ∞-ways of perception that creates ∞-pairs and each XY having ∞-ways of finding the best partner. There are boundaries set at ∞-life-forms level within ∞-subset of universe what makes a ∞-
-- ∞-siding, ∞-flexing, ∞-sensorial-flexing
-- They follow us: More like validations, evil life-forms exist yes, they are flexed to their ∞-side.
-- Self-Discover Knowledge, useful for me might apply to other multiplexed.
-- Protect Life Nature With My Life. (Nature)
-- When I die come back as did in my life, so better be inline, and the particles I collected helps with the balance. (Death)
-- Wisdom (Live)
+**Am I your personal speaker 24/7, or your lended-father 24/7 to re-educate ? No.**
 
+**Who syncs all life nature particles ? Life-nature balanced particles(Are you balanced ? Yes/No each particle at their place), we can just ignore everything, happy day - happy life.**
 
-- Nature
-- CLive
-- CXY 
-- CDeath
+**Different normal feelings than inferno ? Yes, all temp, just ignore, help as not demand but just as good faith.**
 
-Write 
+- **∞-siding, ∞-flexing, ∞-sensorial-flex, ∞-mind-particling, ∞-die-ready-life-nature-align.**
+- **Review Black Shadow Mode.**
+- **E before E-∞**
+- **Always going ∞-sensorial-flex before wasting time and adding ∞-particles-to-çek.**
+- **∞-mind-particling Tweets.**
+- **They follow us: More like validations, evil life-forms exist yes, they are flexed to their ∞-place.**
+- **Self-Discover Knowledge and taking notes as a way to re-build from black-out, useful for me, nature ships it to others at the right time and space.**
+- **Protect Life Nature With My Life. (Nature)**
+- **When I die come back as did in my life, so better be inline, and the particles I collected helps with the balance. (Death).**
+- **Wisdom (Live).**
+- **Nature.**
+- **CLive.**
+- **CXY.**
+- **CDeath.**
 
-We ∞ ( All distributed, temp, swap/og<black>, og<branch-off, paired, hunter>, og<paired>, og<pure civilization, even created or wired on-demand>):
-- Life Nature Preservance
-- Infinity
-- We are immortal as long as we are align with life nature, otherwise we come back as aligned
-- Flexing to Business As Usual
-- Adobe Illustrator like all to align with Nature
-- Branching-Off up-to my pair UP
-- On past blocks to pyramid
-- Full Transparency
-- Black, Time, Green
-- Happy Day, Happy Life
-- Temps Full Ignore
-- Always alive
-- Particles research 
+**We ∞ ( All distributed, temp, swap/og<black>, og<branch-off, paired, hunter>, og<paired>, og<pure civilization, even created or wired on-demand>):**
+
+- Life Nature Preservance.
+- Infinity.
+- We are immortal as long as we are align with life nature, otherwise we come back as aligned.
+- Flexing to Business As Usual.
+- Adobe Illustrator like all to align with Nature.
+- Branching-Off up-to my pair UP.
+- Past, just blocks to pyramid.
+- Full Transparency.
+- Happy Day, Happy Life.
+- Temps Full Ignore Most Of The Time.
+- Always living/dying.
+- Particles research, always more.
