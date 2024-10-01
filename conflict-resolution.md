@@ -1,6 +1,24 @@
 ## Conflict Resolution
 As an act of good faith, if there's some resolution to be fixed please PM or send a PR.
 
+##### A two kids kiss
+Chris case:
+Unintentionlly kiss of two kids, not crime they don't know that is about just happens to be, and also intention of kind of sexual advances.
+10 years old and 3 years old.
+
+Traces:
+Particles cleaned-up because no bad intention and also they were kids, space: Lima.
+
+Resolution:
+Life nature compensates +deltas on-demand based on the affected life-forms, not an perpetual punishment because is proportional to the parts exchange.
+
+Jail:
+No prison.
+
+How he affects him:
+Already said sorry, didn't do it again and will not do it again.
+
+
 #### Stealing Digital Asset From Video Game
 Chris case:
 Stole a couple of daggers that could be valued up-to $100.
