@@ -104,7 +104,7 @@ How he affects him:
 
 ##### 4 prostitues visit.
 Chris case:
-Chris visit 4 prostitues(4 males from his ancestors).
+Chris visit 4 prostitues(4 life forms body temps).
 
 Traces:
 Particles left at the time between: 2006 and 2015, space: Lima.
