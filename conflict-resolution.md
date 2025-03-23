@@ -88,7 +88,7 @@ How he affects him:
 
 #### 1 finger in an anus.
 Chris case:
-Chris introduced 1 finger in an anus without consent.
+Chris introduced 1 finger in an anus without consent(controversial).
 
 Traces:
 Particles left at the time between: 2016-2017, space: Lima, Chris' house.
@@ -100,7 +100,7 @@ Jail:
 Up-to 2 years in prison.
 
 How he affects him:
-0 cares given, didn't do it again and will not do it again, and willing to go to jail up-to 2 years.
+0 cares given, assuming full forgiven, didn't do it again and will not do it again, and in case of miss-turn-around willing to go to jail up-to 2 years.
 
 ##### 4 prostitues visit.
 Chris case:
