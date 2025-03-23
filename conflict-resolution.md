@@ -55,19 +55,19 @@ How he affects him:
 
 #### Removed a few invoices that were filed as tax to pay in France.
 Chris case:
-Removed a few of invoices that needed to be pay as taxes in Perú that were filed in France.
+Removed a few of invoices that were mean to be filed as a tax paying at the end of the year, but was not updated therefore causing patrimonial imbalance.
 
 Traces:
 Particles left at the time between.  
 
 Resolution:
-Invalidate his undergradute skill.
+Not reported back, but causing patrimonial imbalance that could be address at the time when it is reported.
 
 Jail:
 No jail since theres law void.
 
 How he affects him:
-0 cares given, didn't do it again and will not do it again, and the title can be where it belongs in a system of the university.
+No action, didn't do it again and will not do it again.
 
 #### Pseudo $1 million dollars.
 Chris case:
