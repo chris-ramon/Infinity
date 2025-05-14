@@ -88,7 +88,15 @@ How he affects him:
 
 #### 1 finger in an anus.
 Chris case:
-Chris introduced 1 finger in an anus without consent(controversial).
+Chris introduced 1 finger in an anus with/without consent which triggered controversial thoughts.
+
+Motivations:
+- Lust against his beloved significant other.
+- Self discover of intimate loving parts exchange.
+- Previous similar interactions.
+
+Affected:
+Be loved significant-other.
 
 Traces:
 Particles left at the time between: 2016-2017, space: Lima, Chris' house.
