@@ -1,6 +1,10 @@
 ## Conflict Resolution
 As an act of good faith, if there's some resolution to be fixed please PM or send a PR.
 
+### Index
+
+1. [A two kids kiss](##### A two kids kiss)
+
 ##### A two kids kiss
 Chris case:
 Unintentionlly kiss of two kids, not crime they don't know that is about just happens to be, and also intention of kind of sexual advances.
