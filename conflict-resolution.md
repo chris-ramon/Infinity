@@ -3,7 +3,9 @@ As an act of good faith, if there's some resolution to be fixed please PM or sen
 
 ### Index
 
-1. [A two kids kiss](#A-two-kids-kiss)
+1. [A two kids kiss](#A-two-kids-kiss).
+2. [Stealing Digital Asset From Video Game](#stealing-digital-asset-from-video-game)
+
 
 ##### A two kids kiss
 Chris case:
