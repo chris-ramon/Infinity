@@ -6,7 +6,7 @@ As an act of good faith, if there's some resolution to be fixed please PM or sen
 1. [A two kids kiss](#A-two-kids-kiss).
 2. [Stealing Digital Asset From Video Game](#stealing-digital-asset-from-video-game).
 3. [Hacking University Systems](#hacking-university-systems).
-4. [Removed a few invoices that were filed as tax to pay in France](removed-a-few-invoices-that-were-filed-as-tax-to-pay-in-france).
+4. [Removed a few invoices that were filed as tax to pay in France](removed-a-few-invoices-that-were-filed-as-tax-to-pay-in-france.).
 
 
 ##### A two kids kiss
