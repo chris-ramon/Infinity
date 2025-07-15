@@ -7,7 +7,7 @@ As an act of good faith, if there's some resolution to be fixed please PM or sen
 2. [Stealing Digital Asset From Video Game](#stealing-digital-asset-from-video-game).
 3. [Hacking University Systems](#hacking-university-systems).
 4. [Removed a few invoices that were filed as tax to pay in France](#removed-a-few-invoices-that-were-filed-as-tax-to-pay-in-france).
-
+5. [Pseudo $1 million dollars](#pseudo-$1-million-dollars).
 
 ##### A two kids kiss
 Chris case:
