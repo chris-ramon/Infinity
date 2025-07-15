@@ -6,7 +6,7 @@ As an act of good faith, if there's some resolution to be fixed please PM or sen
 1. [A two kids kiss](#A-two-kids-kiss).
 2. [Stealing Digital Asset From Video Game](#stealing-digital-asset-from-video-game).
 3. [Hacking University Systems](#hacking-university-systems).
-4. [Removed a few invoices that were filed as tax to pay in France](removed-a-few-invoices-that-were-filed-as-tax-to-pay-in-france.).
+4. [Removed a few invoices that were filed as tax to pay in France](removed-a-few-invoices-that-were-filed-as-tax-to-pay-in-france).
 
 
 ##### A two kids kiss
@@ -61,7 +61,7 @@ No jail since theres law void.
 How he affects him:
 0 cares given, didn't do it again and will not do it again, and the title can be where it belongs in a system of the university.
 
-#### Removed a few invoices that were filed as tax to pay in France.
+#### Removed a few invoices that were filed as tax to pay in France
 Chris case:
 Removed a few of invoices that were mean to be filed as a tax paying at the end of the year, but was not updated therefore causing patrimonial imbalance.
 
