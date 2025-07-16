@@ -8,6 +8,8 @@ As an act of good faith, if there's some resolution to be fixed please PM or sen
 3. [Hacking University Systems](#hacking-university-systems).
 4. [Removed a few invoices that were filed as tax to pay in France](#removed-a-few-invoices-that-were-filed-as-tax-to-pay-in-france).
 5. [Pseudo $1 million dollars](#pseudo-$1-million-dollars).
+6. [1 finger in an anus](#1-finger-in-an-anus).
+
 
 ##### A two kids kiss
 Chris case:
