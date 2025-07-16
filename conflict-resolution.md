@@ -9,7 +9,8 @@ As an act of good faith, if there's some resolution to be fixed please PM or sen
 4. [Removed a few invoices that were filed as tax to pay in France](#removed-a-few-invoices-that-were-filed-as-tax-to-pay-in-france).
 5. [Pseudo $1 million dollars](#pseudo-$1-million-dollars).
 6. [1 finger in an anus](#1-finger-in-an-anus).
-
+7. [4 prostitues visit](#4-prostitues-visit).
+8. [Watching Porn and Seeing UnAuthorized Photos](#watching-porn-and-seeing-unauthorized-photos).
 
 ##### A two kids kiss
 Chris case:
