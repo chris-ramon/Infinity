@@ -10,7 +10,8 @@ As an act of good faith, if there's some resolution to be fixed please PM or sen
 5. [Pseudo $1 million dollars](#pseudo-$1-million-dollars).
 6. [1 finger in an anus](#1-finger-in-an-anus).
 7. [4 prostitues visit](#4-prostitues-visit).
-8. [Watching Porn and Seeing UnAuthorized Photos](#watching-porn-and-seeing-unauthorized-photos).
+8. [Watching Porn and Seeing UnAuthorized Photos](#watching-porn).
+9. [Saw unconsented semi-naked photos](#saw-unconsented-semi-naked-photos).
 
 ##### A two kids kiss
 Chris case:
