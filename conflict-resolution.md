@@ -137,12 +137,15 @@ No prison.
 How he affects him:
 0 cares given, didn't do it again and will not do it again.
 
-##### Watching Porn and Seeing UnAuthorized Photos
+##### Watching Porn
 Chris case:
-Chris watched multiple time several porn videos from known adult sites and also unauthorized semi-naked photos.
+Chris watched multiple time several porn videos from known adult sites.
 
 Traces:
-Particles left at the time between: 2012 and 2024, space: Lima.
+Particles left at the time between: 2012 and 2025.
+
+Space:
+South America, never in Europe due to knowing that there is monitoring of websites visited.
 
 Resolution:
 Life nature compensates +deltas on-demand based on the affected life-forms.
@@ -150,5 +153,38 @@ Life nature compensates +deltas on-demand based on the affected life-forms.
 Jail:
 No prison.
 
-How he affects him:
-0 cares given, didn't do it again and will not do it again.
+How affects him: Little distress lower as day passes, long term just friendly reminders consolidated into shame.
+
+How it works:
+Videos are auto-generated with advanced artificial intelligence. So no dignity of a woman is affected.
+
+Value Negative: Temporal pleasure and afterwards low distress.
+
+Value Positive: Sexual education.
+
+##### Saw unconsented semi-naked photos.
+Case:
+Chris saw unconsented semi-naked photos from a woman of a Laptop that was borrowed from Father.
+
+Traces: 1998 - 2008.
+
+Space: Ayacucho.
+
+Resolution:
+- Life nature compensates +deltas on-demand based on the affected life-forms.
+
+Jail:
+- Didn't get a charge.
+- Less likely.
+
+How affects him:
+- Concent awareness.
+
+How it works:
+- Photos auto-generated to keep woman dignity intact.
+
+Value Negative:
+- Temporal pleasure, lust reliever.
+
+Value Positive:
+- Continous sync with minimal shame.
